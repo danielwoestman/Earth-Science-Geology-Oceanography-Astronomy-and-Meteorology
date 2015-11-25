@@ -33,4 +33,6 @@ Introduction to Earth Science
 - Why Earth Science? Video
 - Discussion: How do natural events disturb the 4 spheres of Earth?
 - Conservation of Mass Lab
+- I think we should watch a movie
+- This is awesome!
 
